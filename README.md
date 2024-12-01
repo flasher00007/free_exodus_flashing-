@@ -1,4 +1,4 @@
-Here’s the updated version of your **Exodus Flash** README with the link to your Telegram channel:
+
 
 ---
 
